@@ -9,4 +9,4 @@ I'm Vlad, a 3rd-year Software Engineering student at the University of Paisii Hi
 ---
 
 📫 **Connect with me:**  
-[LinkedIn](https://www.linkedin.com/in/vladyslav-lytvynenko-7448a8299) • [Email](vladlit.vinenko2909@gmail.com)
+[LinkedIn](https://www.linkedin.com/in/vladyslav-lytvynenko-7448a8299) • Email: vladlit.vinenko2909@gmail.com
